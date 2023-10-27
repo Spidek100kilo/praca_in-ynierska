@@ -1,1 +1,1 @@
-# praca_in-ynierska
+# praca_inzynierska
